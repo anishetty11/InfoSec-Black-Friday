@@ -170,6 +170,11 @@ use code: GIVETHANKS \
 \* Refer to the link for more details \
 Deal ends: 29th November, 4:59 am UTC
 
+Cybrary Insider Pro membership \
+https://www.cybrary.it/upgrade/checkout/?utm_source=newsletter&utm_medium=email&utm_campaign=black-friday-promo&utm_content=cta-button
+Additional 10% off with code: BlackFriday20 \
+Deal ends: 25th November
+
 ## Mini Course Bundles:
 
 ## Hardware:
