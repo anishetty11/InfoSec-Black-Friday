@@ -296,6 +296,11 @@ KodeKloud STANDARD - 40 % Off \
 KodeKloud PRO - 55 % Off \
 Deal Time: Ongoing
 
+TryHackMe \
+https://hubs.la/Q01t4JZb0
+20% off on annual membership with code: AOC2022 \
+Valid till: 29th November
+
 
 ## Mini Courses:
 
